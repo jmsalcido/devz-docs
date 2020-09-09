@@ -16,6 +16,7 @@ https://requiez.com/Productos/Linea_Ejecutiva/Sillon-Ejecutivo-Dynamic-7000
 **Las sillas que usaban varios (incluyendo el Tony y el Oso) en Nearsoft y les gustaron y la compraron algunos**
 
 - en Hermosillo la consigues en Ofillamas por 20 mil pesos creo (confirmen) depende de existencia.
+- **NOTA:** El precio varía dependiendo de los accesorios que agregues: puedes pedirla sin reposa-brazos ajustables o sin soporte lumbar para ahorrar algunos pesitos.
 
 <a href="https://imgur.com/4MjrJiG.png"><img src='https://imgur.com/4MjrJiG.png' height='500' /></a>
 
