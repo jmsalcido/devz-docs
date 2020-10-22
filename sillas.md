@@ -39,4 +39,6 @@ https://www.okamura.com/en_latam/products/categories/seating/task/baron/
 - $4999.00
 - Agotadas por el momento
 
-<a href="https://static.wixstatic.com/media/d84449_3b3b0f9481604ec5a5f76aa50b246af1~mv2_d_3765_5829_s_4_2.png" height="500"/></a>
+<a href="https://static.wixstatic.com/media/d84449_3b3b0f9481604ec5a5f76aa50b246af1~mv2_d_3765_5829_s_4_2.png"/>
+<img src='https://static.wixstatic.com/media/d84449_3b3b0f9481604ec5a5f76aa50b246af1~mv2_d_3765_5829_s_4_2.png' height='500' />
+</a>
