@@ -31,3 +31,14 @@ https://www.okamura.com/en_latam/products/categories/seating/task/baron/
 - El Gallo se interesó
 
 <a href="https://imgur.com/IVEUja3.png"><img src="https://imgur.com/IVEUja3.png" height="500"/></a>
+
+### Kultec Series X
+**Las sillas que GaliBB recomienda:**
+
+- [Página oficial](https://www.kultec.com.mx/serie-x)
+- $4999.00
+- Agotadas por el momento
+
+<a href="https://static.wixstatic.com/media/d84449_3b3b0f9481604ec5a5f76aa50b246af1~mv2_d_3765_5829_s_4_2.png"/>
+<img src='https://static.wixstatic.com/media/d84449_3b3b0f9481604ec5a5f76aa50b246af1~mv2_d_3765_5829_s_4_2.png' height='500' />
+</a>
